@@ -1,6 +1,6 @@
 # 悠兔机场官网地址
 
-最新地址：[youtu.shop](https://link1.yootu.shop/register?aff=2G1SdfgK)
+最新地址：[youtu.shop](https://link1.youtu6.shop/register?aff=2G1SdfgK)
 
 ## 悠兔机场简介
 
@@ -8,9 +8,11 @@
 
 ## 悠兔优惠码
 
-端午&618活动，75 折优惠码：付费重置流量不加时长
+十一 8 折优惠码： youtunice.com  
 
-有效期到2024/06/19 23:59
+季付起可用，有效期到 10.07 23:59
+
+新人 8 折优惠码：888
 
 ## 特色
 
