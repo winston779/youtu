@@ -1,6 +1,6 @@
 # 悠兔机场官网地址
 
-最新地址：[youtu.shop](https://a.youtu7.shop/register?aff=2G1SdfgK)
+最新地址：[youtu.shop](https://youtu1.xyz/register?aff=2G1SdfgK)
 
 ## 悠兔机场简介
 
